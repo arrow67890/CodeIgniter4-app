@@ -4,7 +4,7 @@
 
 ## Hello, To be honest your budget and timeline is difficult for me. But I will make an effort.
 ## And In freelancer, I must pay fee 12%, so it's not suitable for me, so Can we discuss in tele.
-## If you agree, please DM me, @arrow67890,
+## If you agree, please DM me, @arrow789012,
 ## or email: talyor1992821@outlook.com
 ## Thank you.
 
